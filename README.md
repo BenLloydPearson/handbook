@@ -2,7 +2,7 @@
 
 ## Introduction
 - [Definitions](https://github.com/nylas/handbook/blob/master/Introduction/Definitions.md)
-- [Vision, Mission, & Goals](https://github.com/nylas/handbook/blob/master/Introduction/Vission_Mission_Goals.md)
+- [Vision, Mission, & Goals](https://github.com/nylas/handbook/blob/master/Introduction/Vision_Mission_Goals.md)
 - [Values](https://github.com/nylas/handbook/blob/master/Introduction/Values.md)
 
 ## Employment Policies
