@@ -13,7 +13,7 @@ Values we all hold in common and that guide us in our decisions and actions
 - And we see the opportunity to build as a reward in and of itself.
 
 ## Velocity
-- We move with speed, purpose and direction.
+- We move with speed and direction.
 - We look for points of leverage and efficiency at every turn so that we can move faster while preserving quality.
 - We operate with a stretch goal mentality because we recognize that falling short of a lofty objective is better than over-delivering against a safe target.
 
