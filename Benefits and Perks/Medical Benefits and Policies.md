@@ -2,7 +2,7 @@
 
 ## Medical, Vision, and Dental Insurance 
 
-Nylas provides competitive medical, vision, and dental benefits for all full-time staff members (40 hours) and their families. We also provide membership to One Medical to ease the burden of finding a primary care doctor. Benefits begin the on the 1st of the month after your start date and Nylas’ open enrollment period is during the month of February. Please contact Margaret if you have any coverage questions.
+Nylas provides competitive medical, vision, and dental benefits for all full-time staff members (40 hours) and their families. We also provide membership to One Medical to ease the burden of finding a primary care doctor. Benefits begin the on the 1st of the month after your start date and Nylas’ open enrollment period is during the month of February. Please contact Peter if you have any coverage questions.
 
 ## HSA, FSA, and Dependent Care FSA
 
