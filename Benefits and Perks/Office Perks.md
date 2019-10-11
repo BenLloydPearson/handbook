@@ -2,17 +2,15 @@
 
 ## Meals
 
-Foodies welcome! We offer lunch five days a week via Forkable, which will let you pick your own meal each day with a budget of $15, and dinner can be expensed for anyone who wants to work at the office past 6 p.m. Please help us use our resources wisely and cancel your lunch delivery if you're not going to be in the office.
+Foodies welcome! In our SF office, we offer lunch five days a week via Forkable, which will let you pick your own meal each day with a budget of $12.50, and dinner can be expensed for anyone who wants to work at the office past 6 p.m. Please help us use our resources wisely and cancel your lunch delivery if you're not going to be in the office.
 
-Employees based out of the Nylas New York Office will receive a $15 a day stipend for lunch, applied directly to paychecks as a reimbursement.
+Employees based out of the Nylas New York Office will receive lunch 3 days a week via Forkable, and a $12.50 a day stipend for lunch applied directly to paychecks as a reimbursement for the other 2 days of lunch.
 
-## Gym Membership
+## Health and Wellness
 
-Nylas offers reimbursements on gym memberships up to $70 a month (a maximum paid monthly that does not roll over). If you're in SF, you can join the Nylas account at Fitness SF (located a few blocks from the office) or Touchstone Climbing (several locations in the Bay Area, including Mission Cliffs and Dogpatch Boulders), or for any other gym we can set up a recurring reimbursement. Please contact accounting@nylas.com for reimbursement or if you'd like help finding a gym.
+Nylas offers reimbursements on gym memberships and other forms of wellness (including mental health services) up to $100 a month (a maximum paid monthly that does not roll over). 
 
-## Rideshare Credit
-
-Nylas offers a $100 rideshare credit each month. We are currently using Uber as we've found their business integration to be the most reliable. You'll receive an email at your work email when you start detailing how to connect your account. This credit is a maximum paid monthly and does not roll over.
+If you're in SF, you can join the Nylas account at Fitness SF (located a few blocks from the office) or Touchstone Climbing (several locations in the Bay Area, including Mission Cliffs and Dogpatch Boulders), or for any other gym we can set up a recurring reimbursement. Please contact accounting@nylas.com for reimbursement or if you'd like help finding a gym.
 
 ## Commuter Benefits
 
