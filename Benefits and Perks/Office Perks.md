@@ -8,9 +8,10 @@ Employees based out of the Nylas New York Office will receive lunch 3 days a wee
 
 ## Health and Wellness
 
-Nylas offers reimbursements on gym memberships and other forms of wellness (including mental health services) up to $100 a month (a maximum paid monthly that does not roll over). 
+Nylas offers a monthly $100 stipend for health and wellness services, hosted and administered by Cherry. This balance rolls over during a 12 month period, allowing you to save and spend flexibly. 
 
-If you're in SF, you can join the Nylas account at Fitness SF (located a few blocks from the office) or Touchstone Climbing (several locations in the Bay Area, including Mission Cliffs and Dogpatch Boulders), or for any other gym we can set up a recurring reimbursement. Please contact accounting@nylas.com for reimbursement or if you'd like help finding a gym.
+Through this flexible program, we can help support what wellness means to you.
+
 
 ## Commuter Benefits
 
