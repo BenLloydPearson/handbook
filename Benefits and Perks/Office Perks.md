@@ -8,9 +8,15 @@ Employees based out of the Nylas New York Office will receive lunch 3 days a wee
 
 ## Health and Wellness
 
-Nylas offers a monthly $100 stipend for health and wellness services, hosted and administered by Cherry. This balance rolls over during a 12 month period, allowing you to save and spend flexibly. 
+Nylas offers a monthly $100 stipend for health and wellness services, hosted and administered by Zestful. This balance rolls over during a 12 month period, allowing you to save and spend flexibly. 
 
 Through this flexible program, we can help support what wellness means to you.
+
+## Getting To Know You
+
+Nylas offers a monthly $20 stipend for coffee, hosted and administered by Zestful. Employees are encouraged to use this stipend to go get coffee/tea with each other and get to know each other better.
+
+Additionally, we use an app called Donut to randomly pair you with someone else at the company every 2 weeks and encourage you to use this stipend to get to know them better. 
 
 
 ## Commuter Benefits
