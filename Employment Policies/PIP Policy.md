@@ -100,7 +100,7 @@ When the employee is committed to improvement, but falls short of the objectives
 
 ## Template Example for a PIP
 
-Performance Improvement Plan
+#### Performance Improvement Plan
 This document serves to provide you with a plan to correct performance in the following areas:
 
 - #1 Defining goal or metric missed for this review period
